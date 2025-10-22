@@ -1,3 +1,3 @@
-Software Engineer @ Vistar Media
+Software Engineer II @ Vistar Media
 
 Personal GitHub: https://github.com/PScottZero
